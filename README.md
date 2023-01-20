@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi
 
 
 Find me at the following places:
